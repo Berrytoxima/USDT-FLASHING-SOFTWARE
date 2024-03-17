@@ -12,5 +12,5 @@ FUNCTIONS OF THE USDT FLASHING SOFTWARE
 KINDLY SEND A MESSAGE TO THE [VERIFIED ADMIN](https://t.me/coathox)
  TO GET THE SOFTWARE☎️☎️☎️
 YOU CAN ALSO JOIN OUR [TELEGRAM CHANNEL](https://t.me/bitcoin_flashing) FOR MORE LATEST UPDATES
-Click to join our [Telegram Channel](https://t.me/bitcoin_flashing)
 #DO I SELL USDT FLASH? yes I sell flash USDT
+HAVE ANY ENQUIRY??? PLEASE CONTACT [ADMIN](https://t.me/coathox)
